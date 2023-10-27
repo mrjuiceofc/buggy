@@ -1,6 +1,6 @@
 /*
-› Create By Haikal
-› Base Ori Haikal
+› Create By Aliens
+› Base Ori Baby Bot
 
 🌷 KALAU MAU RENAME TARO CREDITS GUA : HW MODS WA☆ */
 
